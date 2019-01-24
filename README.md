@@ -25,7 +25,6 @@ As Jen Mah said:
 
 > I am a web TA!
 > But I don't show up on time to my recitation!
-> I am a bad boi
 
 I'll be here all week folks. Check out more of my work at www.natebennett1.wordpress.com
 or click [here](www.natebennett1.wordpress.com)
